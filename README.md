@@ -1,2 +1,2 @@
 # ORYANTASYON-FINAL-ODEVI
-Oryantasyon Final Odevi
+youtube video linki:https://youtu.be/nbQoByA1Ikk
